@@ -12,4 +12,4 @@
 ## Week 4
 (June 23) {name when known}
 ## Week 5
-(June 27 - July 2) For Strength in Youth
+(June 27 - July 2) For Strength in Youth, click [here](https://www.churchofjesuschrist.org/youth/childrenandyouth/fsy/about/youth?lang=eng) for more information 
