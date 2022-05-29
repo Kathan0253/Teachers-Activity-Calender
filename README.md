@@ -4,7 +4,7 @@
 ## Week 1 (May 29 - June 4)
 (May 2) Planning Activity 
 ## Week 2 (June 5 - June 11)
-(June 7 - June 11) Young Men's Camp 
+(June 7 - June 11) Young Men's Camp, click [here](https://docs.google.com/document/d/1PVe69kfl30fWmQf22YU1FjiwxssB1SPhsbAzXUsYDqQ/edit#heading=h.2gazcsgmxkub) for information
 
 (June 9) Church activity cancelled for camp
 ## Week 3 
