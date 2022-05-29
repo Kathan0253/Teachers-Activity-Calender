@@ -9,5 +9,7 @@
 (June 9) Church activity cancelled for camp
 ## Week 3 
 (June 16) {name when known}
-
-Young Mens Camp Info.zip](https://github.com/Kathan0253/Teachers-Activity-Calender/files/8794311/2798F29B-76FE-42AC-AC8F-A9E126F033A3.zip)
+## Week 4
+(June 23) {name when known}
+## Week 5
+(June 27 - July 2) For Strength in Youth
