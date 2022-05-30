@@ -19,5 +19,6 @@
 ## Week 2 (July 3 - July 9)
 (July 7) {name when known}
 ## Week 3 (July 10 - July 16)
-(July 17) {name when known}
+(July 14) {name when known}
 ## Week 4 (July 17 - July 23)
+(July 21) {name when known}
