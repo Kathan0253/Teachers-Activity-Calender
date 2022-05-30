@@ -9,9 +9,9 @@
 (June 9) Church activity cancelled for camp
 ## Week 3 (June 12 - June 18)
 (June 16) {name when known}
-## Week 4 (
+## Week 4 (June 19 - June 25)
 (June 23) {name when known}
-## Week 5
+## Week 5 (June 26 - July 2)
 (June 27 - July 2) For Strength in Youth, click [here](https://www.churchofjesuschrist.org/youth/childrenandyouth/fsy/about/youth?lang=eng) for more information 
 # Month of July
 ## Week 1
