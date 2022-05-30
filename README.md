@@ -22,3 +22,4 @@
 (July 14) {name when known}
 ## Week 4 (July 17 - July 23)
 (July 21) {name when known}
+## Week 5 (July 24 - July 30)
