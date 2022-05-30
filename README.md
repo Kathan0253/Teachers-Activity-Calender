@@ -14,9 +14,9 @@
 ## Week 5 (June 26 - July 2)
 (June 27 - July 2) For Strength in Youth, click [here](https://www.churchofjesuschrist.org/youth/childrenandyouth/fsy/about/youth?lang=eng) for more information 
 # Month of July
-## Week 1
+## Week 1 (June 26 - July 2)
 (June 27 - July 2) For Strength in Youth, click [here](https://www.churchofjesuschrist.org/youth/childrenandyouth/fsy/about/youth?lang=eng) for more information
-## Week 2
+## Week 2 (July 3 - July 9)
 (July 7) {name when known}
-## Week 3
+## Week 3 (July 10 - July 16)
 (July 17) {name when known}
