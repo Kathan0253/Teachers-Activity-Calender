@@ -7,7 +7,7 @@
 (June 7 - June 11) Young Men's Camp, click [here](https://docs.google.com/document/d/1PVe69kfl30fWmQf22YU1FjiwxssB1SPhsbAzXUsYDqQ/edit#heading=h.2gazcsgmxkub) for information
 
 (June 9) Church activity cancelled for camp
-## Week 3 
+## Week 3 (June 12 - June 18)
 (June 16) {name when known}
 ## Week 4
 (June 23) {name when known}
