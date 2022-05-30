@@ -1,4 +1,5 @@
 # Teacher's Activity Calender
+Calendar for the Teachers of the Valley Ranch Ward.
 ![Alt text](https://www.stgeorgeutah.com/wp-content/uploads/2020/04/1200x675size-English.jpg)
 # Month of June
 ## Week 1 (May 29 - June 4)
@@ -25,3 +26,4 @@
 ## Week 5 (July 24 - July 30)
 (July 28) {name when known}
 # Month of August
+## Week 1 (
