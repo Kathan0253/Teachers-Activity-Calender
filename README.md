@@ -26,4 +26,7 @@ Calendar for the Teachers of the Valley Ranch Ward.
 ## Week 5 (July 24 - July 30)
 (July 28) {name when known}
 # Month of August
-## Week 1 (
+| Week 1  | July 31 - August 20 |
+| ------------- | ------------- |
+| August 4  | name when known  |
+| Content Cell  | Content Cell  |
