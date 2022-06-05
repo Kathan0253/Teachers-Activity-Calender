@@ -9,7 +9,7 @@ Calendar for the Teachers of the Valley Ranch Ward.
 
 (June 9) Church activity cancelled for camp
 ## Week 3 (June 12 - June 18)
-(June 16) {name when known}
+(June 16) Feild day with the Young Woman.
 ## Week 4 (June 19 - June 25)
 (June 23) {name when known}
 ## Week 5 (June 26 - July 2)
