@@ -25,7 +25,4 @@ Calendar for the Teachers of the Valley Ranch Ward.
 (July 21) Missionary Talk
 ## Week 5 (July 24 - July 30)
 (July 28) Boating 
-# Month of August
-## Week 1 (July 31 - August 6)
-(August 4) {name when known}
-## Week 2 (August 7 - August 13)
+
