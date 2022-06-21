@@ -18,13 +18,13 @@ Calendar for the Teachers of the Valley Ranch Ward.
 ## Week 1 (June 26 - July 2)
 (June 27 - July 2) For Strength in Youth, click [here](https://www.churchofjesuschrist.org/youth/childrenandyouth/fsy/about/youth?lang=eng) for more information
 ## Week 2 (July 3 - July 9)
-(July 7) {name when known}
+(July 7) Cooking
 ## Week 3 (July 10 - July 16)
-(July 14) {name when known}
+(July 14) Combined
 ## Week 4 (July 17 - July 23)
-(July 21) {name when known}
+(July 21) Missionary Talk
 ## Week 5 (July 24 - July 30)
-(July 28) {name when known}
+(July 28) Boating 
 # Month of August
 ## Week 1 (July 31 - August 6)
 (August 4) {name when known}
